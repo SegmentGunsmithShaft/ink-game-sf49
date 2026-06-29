@@ -1,4 +1,4 @@
-
+custom Script for ink game is the best ink game Script, featuring auto-collect and auto-upgrade. Safe and powerful for all your needs.
 
 
 
